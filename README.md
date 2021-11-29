@@ -19,4 +19,5 @@ See the [FULL SET OF ARCHIVES HERE](https://github.com/mparchive/mpressman3/tree
 * [Indecent tweets - CONTENT WARNING.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) Work in progress.
 
 
-* Stalking and harassment tweets from accounts 21-63 incomplete. NOTE: the later accounts will have the indecent content on them.
+* Stalking and harassment tweets from accounts 21-63 incomplete. 
+NOTE: the later accounts will have the more disturbing content on them.
