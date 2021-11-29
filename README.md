@@ -2,7 +2,7 @@
 ### CONTENT WARNING: extreme racism and disturbing content.
 The purpose of this repository is to document the posting history of abusive Twitter user.
 
-See the [FULL SET OF ARCHIVES HERE](https://github.com/mparchive/mpressman3/tree/main/Accounts) folder for additional archives.
+See the [FULL SET OF ARCHIVES HERE](https://github.com/mparchive/mpressman3/tree/main/Accounts) for all located accounts.
 
 * [mpressman3 archive part 1](https://github.com/mparchive/mpressman3/blob/main/Accounts/mpressman3_part1.md)
 * [mpressman3 archive part 2](https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part2.md) - on oldest tweets uses real identity
