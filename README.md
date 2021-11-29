@@ -15,4 +15,4 @@ See the Accounts folder for additional archives.
 
 
 
-* [Indecent tweets - CONTENT WARNING. Work in progress.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt)
+* [Indecent tweets - CONTENT WARNING.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) Work in progress.
