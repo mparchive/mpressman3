@@ -184,52 +184,6 @@ https://web.archive.org/web/20200509110636/https://twitter.com/Tyson26599897/sta
 3 May 2020: Niggy, why do you seek someone out when they blocked you? That's called stalking, nappy head. But this is a public message board, so, no such thing.
 https://web.archive.org/web/20200508234544/https://twitter.com/Tyson26599897/status/1256866107270578176
 
-### Username: @Jim45921203
-
-11 May 2020: Tell that dumb troll to stop stalking people. She has no clue, does she? 😄😄😄😄
-https://web.archive.org/web/20200512005436/https://twitter.com/Jim45921203/status/1259818965456601088
-
-11 May 2020: I mean, look at her! 😄😄 She's out of her mind!😄😄😄 Won't leave that guy alone! That's the only reason she gets fucked with. She's got the wrong person!!😄😄😄
-https://web.archive.org/web/20200512033208/https://twitter.com/Jim45921203/status/1259819458295726081
-
-11 May 2020: Wow... She got a bot suspended! Takes talent.
-https://web.archive.org/web/20200514094629/https://twitter.com/Jim45921203/status/1259831632271478785
-
-11 May 2020: By the way, she's got the wrong person! 😄😄😄 why does her pitiful ass think it's up to her to get people suspended? Because she's a loser, with no life. Who didn't go to prom. That's why.
-https://web.archive.org/web/20200514091341/https://twitter.com/Jim45921203/status/1259832182576762881
-
-11 May 2020: Also, listing people like that and telling followers to harass them is targeted harassment. I think it's time to report her. She had 15 tweets removed for doing that before. She's a long time stalker.
-https://web.archive.org/web/20200512152528/https://twitter.com/Jim45921203/status/1259833737723944960
-
-12 May 2020: I can see it now; the stalker calls the cops. Starts explaining to the cops. "They have me blocked, but I can see what dey sayin with incognito mode! Dey say..." Cop interupts: "why are you using incognito mode to spy on someone who has never engaged you?"
-https://web.archive.org/web/20200515025958/https://twitter.com/Jim45921203/status/1260028219236839426
-
-12 May 2020: The stalker is lying and saying that you guys are making threats, when no one is. It says because I threaten to report it's followers for hate speech, that, that is a threat. Meanwhile, it reports everyone! This thing is crazy.
-https://web.archive.org/web/20200512185940/https://twitter.com/Jim45921203/status/1260029242202402820
-
-12 May 2020: So, what does it do? Stalks some more. Does this moron have any self awareness? It thinks it's a victim. I wish they would call the cops. That way, the cops could explain that it's the stalker. I encourage it. I really do. Call. Right now.
-https://web.archive.org/web/20200513044932/https://twitter.com/Jim45921203/status/1260051706685128705
-
-12 May 2020: It says, "just admit you hate blacks!" As you see it calling White People every racist name it can think of. Stating every racist trope and stereotype. Okay for me, but not for thee. I guess.
-https://web.archive.org/web/20200513041037/https://twitter.com/Jim45921203/status/1260053757183832064
-
-12 May 2020: I knew this time, it would go over the edge. It can't figure out why this account is still here. It's going nuts.
-https://web.archive.org/web/20200512120438/https://twitter.com/Jim45921203/status/1260054474535698436
-
-12 May 2020: When you start claiming you have all these, "stalkers," you need to look in the mirror. Harassing people for a reaction, then claiming you're a victim when they react, is called self victimization stalking.
-https://web.archive.org/web/20200512214413/https://twitter.com/Jim45921203/status/1260056096514981889
-
-12 May 2020: If there was anything against the law, you already did it. Go ahead, call the cops! You can't harass someone and then claim you're a victim. Stop harassing Us. Every time you copy a tweet and post it, you're stalking. You're the stalker.
-https://web.archive.org/web/20200512123052/https://twitter.com/Jim45921203/status/1260083025481777153
-
-(Replying to KJ's handle)
-12 May 2020: She uses three accounts to stalk people. Incognito mode. So now she doesn't like it when people won't leave her alone, and do stuff to get around the blocks. Just like she does.
-https://web.archive.org/web/20200514021524/https://twitter.com/Jim45921203/status/1260085308395343872
-
-12 May 2020: People who go around trying to get people suspended on here are of a stalker mentality. Period.
-https://web.archive.org/web/20200512120319/https://twitter.com/Jim45921203/status/1260093753571803141
-
-
 
 ### Username: @Robert81488658
 
@@ -281,6 +235,55 @@ https://web.archive.org/web/20200511182601/https://twitter.com/Robert81488658/st
 7 May 2020: You have permission to talk.
 https://web.archive.org/web/20200511160152/https://twitter.com/Robert81488658/status/1258394547798839296
 
+
+### Username: @Jim45921203
+
+11 May 2020: Tell that dumb troll to stop stalking people. She has no clue, does she? 😄😄😄😄
+https://web.archive.org/web/20200512005436/https://twitter.com/Jim45921203/status/1259818965456601088
+
+11 May 2020: I mean, look at her! 😄😄 She's out of her mind!😄😄😄 Won't leave that guy alone! That's the only reason she gets fucked with. She's got the wrong person!!😄😄😄
+https://web.archive.org/web/20200512033208/https://twitter.com/Jim45921203/status/1259819458295726081
+
+11 May 2020: Wow... She got a bot suspended! Takes talent.
+https://web.archive.org/web/20200514094629/https://twitter.com/Jim45921203/status/1259831632271478785
+
+11 May 2020: By the way, she's got the wrong person! 😄😄😄 why does her pitiful ass think it's up to her to get people suspended? Because she's a loser, with no life. Who didn't go to prom. That's why.
+https://web.archive.org/web/20200514091341/https://twitter.com/Jim45921203/status/1259832182576762881
+
+11 May 2020: Also, listing people like that and telling followers to harass them is targeted harassment. I think it's time to report her. She had 15 tweets removed for doing that before. She's a long time stalker.
+https://web.archive.org/web/20200512152528/https://twitter.com/Jim45921203/status/1259833737723944960
+
+12 May 2020: I can see it now; the stalker calls the cops. Starts explaining to the cops. "They have me blocked, but I can see what dey sayin with incognito mode! Dey say..." Cop interupts: "why are you using incognito mode to spy on someone who has never engaged you?"
+https://web.archive.org/web/20200515025958/https://twitter.com/Jim45921203/status/1260028219236839426
+
+12 May 2020: The stalker is lying and saying that you guys are making threats, when no one is. It says because I threaten to report it's followers for hate speech, that, that is a threat. Meanwhile, it reports everyone! This thing is crazy.
+https://web.archive.org/web/20200512185940/https://twitter.com/Jim45921203/status/1260029242202402820
+
+12 May 2020: So, what does it do? Stalks some more. Does this moron have any self awareness? It thinks it's a victim. I wish they would call the cops. That way, the cops could explain that it's the stalker. I encourage it. I really do. Call. Right now.
+https://web.archive.org/web/20200513044932/https://twitter.com/Jim45921203/status/1260051706685128705
+
+12 May 2020: It says, "just admit you hate blacks!" As you see it calling White People every racist name it can think of. Stating every racist trope and stereotype. Okay for me, but not for thee. I guess.
+https://web.archive.org/web/20200513041037/https://twitter.com/Jim45921203/status/1260053757183832064
+
+12 May 2020: I knew this time, it would go over the edge. It can't figure out why this account is still here. It's going nuts.
+https://web.archive.org/web/20200512120438/https://twitter.com/Jim45921203/status/1260054474535698436
+
+12 May 2020: When you start claiming you have all these, "stalkers," you need to look in the mirror. Harassing people for a reaction, then claiming you're a victim when they react, is called self victimization stalking.
+https://web.archive.org/web/20200512214413/https://twitter.com/Jim45921203/status/1260056096514981889
+
+12 May 2020: If there was anything against the law, you already did it. Go ahead, call the cops! You can't harass someone and then claim you're a victim. Stop harassing Us. Every time you copy a tweet and post it, you're stalking. You're the stalker.
+https://web.archive.org/web/20200512123052/https://twitter.com/Jim45921203/status/1260083025481777153
+
+(Replying to KJ's handle)
+12 May 2020: She uses three accounts to stalk people. Incognito mode. So now she doesn't like it when people won't leave her alone, and do stuff to get around the blocks. Just like she does.
+https://web.archive.org/web/20200514021524/https://twitter.com/Jim45921203/status/1260085308395343872
+
+12 May 2020: People who go around trying to get people suspended on here are of a stalker mentality. Period.
+https://web.archive.org/web/20200512120319/https://twitter.com/Jim45921203/status/1260093753571803141
+
+
+
+
 ### Username: @Paul31873983
 
 15 May 2020: You're the stalker. Stop harassing my followers. So, you lie and say people are making threats, when they're not. You harass people and act like a victim. I'm no victim. I'm just giving you a good taste of your own medicine and you can't stand it. "My stalker.." LOL😄😄😄
@@ -324,6 +327,8 @@ https://web.archive.org/web/20200515070748/https://twitter.com/Paul31873983/stat
 https://web.archive.org/web/20200515115125/https://twitter.com/Paul31873983/status/1261172582352596995
 
 
+
+
 ### Username: @Richard22038679
 
 22 May 2020: So, stop stalking them and you won't see it. Got it, dummy?
@@ -341,12 +346,28 @@ https://web.archive.org/web/20200522074458/https://twitter.com/Richard22038679/s
 22 May 2020: Look at you. Still stalking. So, you asked for it. Mind your business and get out of our conversations, niggy. Doesn't that sound familiar?
 https://web.archive.org/web/20200522072123/https://twitter.com/Richard22038679/status/1263721238763130880
 
-(KJ telling him to leave her alone, him threatening her.)
+## KJ telling him to leave her alone, him threatening her.
 22 May 2020: You're gonna get it, jogger.
 https://web.archive.org/web/20200522071058/https://twitter.com/Richard22038679/status/1263721337505357824
 
 22 May 2020: You sure do project your hate. Who's the one keeping tabs, jogger?
 https://web.archive.org/web/20200522073327/https://twitter.com/Richard22038679/status/1263721580380721152
+
+### Username: @Toby71205453
+
+25 May 2020: @indigenoussista @pulte Keep begging, loser.
+https://web.archive.org/web/20200525054430/https://twitter.com/Toby71205453/status/1264794451597299713
+
+25 May 2020: Looks like someone made an account to make a few tweets and ditch it. You got a stagnant account suspended, that was meant to be suspended, and you're bragging.😄😄 loser! Like hunting and bringing home an already dead animal you found and telling all your friends you got it
+https://web.archive.org/web/20200525055255/https://twitter.com/Toby71205453/status/1264795191539531776
+
+25 May 2020: No one ever made threats, niggy.
+https://web.archive.org/web/20200525055352/https://twitter.com/Toby71205453/status/1264796168011333638
+
+25 May 2020: So why do you keep stalking people that blocked you, niggy? Normal people block and move on. You keep stalking, stalker.
+https://web.archive.org/web/20200525055653/https://twitter.com/Toby71205453/status/1264796642504556545
+
+### Username: @Richard22038679 (again)
 
 29 May 2020: This jogger I told you about is SO DUMB, that it spies on my account and it saw what I posted to you, (it's blocked), warning you to block them and to look for any violations if you come across them harassing you. Look at what it said! IT DOES THE SAME DAMN THING!
 https://web.archive.org/web/20200529204425/https://twitter.com/Richard22038679/status/1266301557957554184
@@ -371,19 +392,7 @@ https://web.archive.org/web/20200529220449/https://twitter.com/Richard22038679/s
 29 May 2020: This dumb, jogger/stalker, isn't bright at all. I'm like putting a flaming bag of dog shit on its porch and it keeps coming out and stepping in the shit and thinking it won, because it put the fire out.. 😄😄😄
 https://web.archive.org/web/20200530035508/https://twitter.com/Richard22038679/status/1266314067314081794
 
-### Username: @Toby71205453
 
-25 May 2020: @indigenoussista @pulte Keep begging, loser.
-https://web.archive.org/web/20200525054430/https://twitter.com/Toby71205453/status/1264794451597299713
-
-25 May 2020: Looks like someone made an account to make a few tweets and ditch it. You got a stagnant account suspended, that was meant to be suspended, and you're bragging.😄😄 loser! Like hunting and bringing home an already dead animal you found and telling all your friends you got it
-https://web.archive.org/web/20200525055255/https://twitter.com/Toby71205453/status/1264795191539531776
-
-25 May 2020: No one ever made threats, niggy.
-https://web.archive.org/web/20200525055352/https://twitter.com/Toby71205453/status/1264796168011333638
-
-25 May 2020: So why do you keep stalking people that blocked you, niggy? Normal people block and move on. You keep stalking, stalker.
-https://web.archive.org/web/20200525055653/https://twitter.com/Toby71205453/status/1264796642504556545
 
 ### Username: @schmucatelli
 
