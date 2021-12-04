@@ -107,7 +107,7 @@ Stalking and harassment tweets from accounts 21-63 incomplete.
 |68 |21-10-22 |21-11-20 |[@stoplyingstats](https://github.com/mparchive/mpressman3/blob/main/Accounts/68_stoplyingstats.md) |1449249438057254912 |No more fake stats |
 |69 |21-11-24 |21-11-24 |[@youreasavagebea](https://github.com/mparchive/mpressman3/blob/main/Accounts/69_youreasavagebea.md) |1462380311866753028 |The notifier |
 |70 |21-11-25 |21-11-25 |[@BlacksSavage](https://github.com/mparchive/mpressman3/blob/main/Accounts/70_BlacksSavage.md) |1463722662434377730 |Savage blacks |
-|71 |20-03-17 |Active |[@GeorgeF1350](https://twiitter.com/GeorgeF1350) |1239817886551683073 |George |
+|71 |20-03-17 |Active |[@GeorgeF1350](https://twitter.com/GeorgeF1350) |1239817886551683073 |George |
 |72 |21-02-19 |Abandoned |[@WillieD82567868](https://twitter.com/WillieD82567868) |1362649141147553792 |Willie D |
 | |21-02-24 |n/a |@ZiggerJ |Name changed |Zigger Jones |
 |73 |21-02-25 |Abandoned |[@indigenouszigge](https://twitter.com/indigenouszigge) |1364856895408902148 |KJ (AKA hoodrat) |
