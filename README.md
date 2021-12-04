@@ -26,6 +26,7 @@ _Information regarding [Threatening government officials of the United States](h
 
 * [Stalking and harassment tweets from accounts 2-20](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2002%20to%2020.md)
 * [Stalking and harassment tweets from accounts 64-70](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2064%20to%2070.md)
+* [Violent threat after victim says to leave her alone](https://web.archive.org/web/20200522071058/https://twitter.com/Richard22038679/status/1263721337505357824)
 
 Compilation of stalking and harassment tweets from accounts 21-63 and 70-80 incomplete, but it can be located within account archives.  
 The user frequently frequently calls his target "stalker" "niggy" "ziggy" "dinger", by their name, or replies with racial slurs directly to the target's handle.
