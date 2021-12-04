@@ -22,7 +22,7 @@ Primary account: [@mpressman3](https://twitter.com/mpressman3), suspended 2020.
 
 _Information regarding [Threatening government officials of the United States](https://en.wikipedia.org/wiki/Threatening_government_officials_of_the_United_States)_  
 
-### Progress:
+### Stalking and harassment of an individual:
 
 * [Stalking and harassment tweets from accounts 2-10](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2002%20to%2010.txt) - Collected
 * [Stalking and harassment tweets from accounts 11-20](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2011%20to%2020.txt) - Collected
