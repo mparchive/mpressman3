@@ -33,7 +33,7 @@ The user frequently frequently calls his target "stalker" "niggy" "ziggy" "dinge
 
 
 ### Posting explicit content at individuals  
-* [Explicit tweets - CONTENT WARNING - GRAPHIC CONTENT IN ARCHIVES.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
+* [CONTENT WARNING - EXTREMELY GRAPHIC CONTENT IN ARCHIVES (Bestiality/necrophilia).](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
   
   
 
