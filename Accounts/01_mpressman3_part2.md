@@ -1,3 +1,7 @@
+## Link to Part 1 here: https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part1.md  
+
+This collection contains the oldest archives for mpressman3.
+
 * [21 December 2019](https://web.archive.org/web/20191221071621/https://twitter.com/mpressman3/status/1208277351580209152): They're superstitious to begin with and believe just about any fairy tale you tell them.
 * [21 December 2019](https://web.archive.org/web/20191221065908/https://twitter.com/mpressman3/status/1208276985404952576): They don't participate in a lot of thinking games.
 * [21 December 2019](https://web.archive.org/web/20191221065250/https://twitter.com/mpressman3/status/1208276010812297217): Yeah, it's not a real holiday, like Columbus day.
