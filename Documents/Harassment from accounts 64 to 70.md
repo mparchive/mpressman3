@@ -1,10 +1,11 @@
-=== 64 ===
-Username: JChesimard
+Accounts 64 - 70 checked for stalking and harassment of KJ (@indigenoussista)
+
+### Username: @uncleanblack
 24 July 2021: What's so funny is that you're all so stupid, you believe a stupid myth from the 1600's. Something easily debunked with a Google search. Look how dumb you all are. How stupid you look. You get them WORSE! And, more often. It's hilarious how dumb you are! pic.twitter.com/Yy68530LZe
-https://web.archive.org/web/20210725003102/https://twitter.com/uncleanblack/status/1418820530271145984
+https://web.archive.org/web/20210725003102/https://twitter.com/c/status/1418820530271145984
 
 
-=== 65 ===
+### Username: @JChesimard
 11 August 2021: Actually dinger, this is actual cyberstalking. You trying to dox someone. Hope you know what you're talking about, which you don't. I'm sure you've spent weeks worth of time, trying to make some case, only to be told that you're on a public platform, making racist, incendiary
 https://web.archive.org/web/20210811011835/https://twitter.com/JChesimard/status/1425265281795072000
 
@@ -51,13 +52,11 @@ https://web.archive.org/web/20210811013040/https://twitter.com/JChesimard/status
 https://web.archive.org/web/20210811013725/https://twitter.com/JChesimard/status/1425269989540458497
 
 
-=== 66 ===
+### Username: @jochesimard
 6 October 2021: Look at how dumb this animal is. It's literally calling someone a racist in the background of THIS tweet. Tell me the blacks wouldn't be all over a tweet calling them names. That thing needs help. pic.twitter.com/9L7u2EztHA
 https://web.archive.org/web/20211006073946/https://twitter.com/jochesimard/status/1445654926630158337
 
-
-=== 67 ===
-Username: museumwatch101
+### Username: @museumwatch101
 
 17 October 2021: The stalker doesn't want it's new buddy to know how hateful, racist, and nasty it is, so it's on good behavior. Won't be long until vile hatred starts getting posted again. We take screenshots too.
 https://web.archive.org/web/20211017222847/https://twitter.com/museumwatch101/status/1449863697585868800
@@ -65,19 +64,11 @@ https://web.archive.org/web/20211017222847/https://twitter.com/museumwatch101/st
 20 October 2021: Calm down kj. pic.twitter.com/UAVNJ6KVD6
 https://web.archive.org/web/20211021044031/https://twitter.com/museumwatch101/status/1450683294018854916
 
-
-=== 68 ===
-Username: stoplyingstats
+### Username: @stoplyingstats
 
 20 November 2021: See Ziggy, you're the stalker! Maybe you should stop bringing so much grief to yourself, and just mind your damn business. But you won't.
 https://web.archive.org/web/20211120050924/https://twitter.com/stoplyingstats/status/1461924582168879106
 
 
-=== 69 ===
-Username: youreasavagebea
-(Checked)
-
-
-=== 70 ===
-Username: BlacksSavage
-(Checked)
+===
+Accounts 64 - 70 checked for stalking and harassment of KJ (@indigenoussista)
