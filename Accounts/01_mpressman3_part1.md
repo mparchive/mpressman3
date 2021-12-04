@@ -1,5 +1,6 @@
 ## Archived tweets for mpressman3
 ### Content warning: extreme racism and disturbing content
+### Link to part 2 here: https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part2.md
 More information: https://github.com/TwitterArchives/mpressman3#readme
 
 The purpose of this collection to track racist abuse and harassment from Twitter user mpressman3 and from related Twitter accounts that have been created since the initial suspension of mpressman3.
