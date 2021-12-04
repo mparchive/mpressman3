@@ -24,9 +24,8 @@ _Information regarding [Threatening government officials of the United States](h
 
 ### Stalking and harassment of an individual
 
-* [Stalking and harassment tweets from accounts 2-10](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2002%20to%2010.txt) - Collected
-* [Stalking and harassment tweets from accounts 11-20](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2011%20to%2020.txt) - Collected
-* [Stalking and harassment tweets from accounts 64-70](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2064%20to%2070.txt) - Collected
+* [Stalking and harassment tweets from accounts 2-10](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2002%20to%2020.md)
+* [Stalking and harassment tweets from accounts 64-70](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2064%20to%2070.txt)
 
 
 * [Indecent tweets - CONTENT WARNING.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) Work in progress.
