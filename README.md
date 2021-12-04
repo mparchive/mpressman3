@@ -34,7 +34,7 @@ _Information regarding [Threatening government officials of the United States](h
   
 Stalking and harassment tweets from accounts 21-63 incomplete.  
 
-### Accounts:
+### Suspended and active accounts 
 
 | # | Start | Approx end | Handle | User ID | Name |
 |  --- |  -------------- |  -------------- | -------------------- |  -------------- |  -------------- |
