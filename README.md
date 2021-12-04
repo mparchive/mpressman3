@@ -36,8 +36,8 @@ Stalking and harassment tweets from accounts 21-63 incomplete.
 
 ### Accounts:
 
-| # | Start | Approx end | Handle | User ID | Name | Archive | 
-|  --- |  -------------- |  -------------- | -------------------- |  -------------- |  -------------- |  -------------- | 
+| # | Start | Approx end | Handle | User ID | Name |
+|  --- |  -------------- |  -------------- | -------------------- |  -------------- |  -------------- |
 |1 |17-05-11 |20-03-04 |[@mpressman3](https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part2.md) |730386605844930560 |MIC / Michael |
 |2 |20-03-17 |20-03-17 |[@Terrell34905565](https://github.com/mparchive/mpressman3/blob/main/Accounts/03_Terrell34905565.md) |1239833258021531648 |Terrell Edwards |
 |3 |20-03-18 |20-03-18 |[@Tom84933624](https://github.com/mparchive/mpressman3/blob/main/Accounts/02_Tom84933624.md) |1240093572436832258 |Tom |
