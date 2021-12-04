@@ -13,3 +13,5 @@ Please note that all tweets quoted here are sourced from the
 [Wayback Machine](https://web.archive.org) and were not directly accessed through the Twitter API or
 any Twitter client.
 
+NOTE: Tweets from this handle before 2020 were from another user who previously held the username. 
+This user changed names and is not associated with mpressman.
