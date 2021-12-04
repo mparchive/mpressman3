@@ -28,7 +28,7 @@ _Information regarding [Threatening government officials of the United States](h
 * [Stalking and harassment tweets from accounts 64-70](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2064%20to%2070.md)
 
 Compilation of stalking and harassment tweets from accounts 21-63 and 70-80 incomplete, but it can be located within account archives.  
-The user frequently references his target using the names "stalker" "niggy" "ziggy" "dinger" and "KJ".
+The user frequently frequently calls his target "stalker" "niggy" "ziggy" "dinger" and by their name.
 
 
 ### Posting explicit content at individuals  
