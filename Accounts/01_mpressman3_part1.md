@@ -1,7 +1,5 @@
 ## Archived tweets for mpressman3
 ### Content warning: extreme racism and disturbing content
-#### Link to part 2 here: https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part2.md  
-
 More information: https://github.com/TwitterArchives/mpressman3#readme
 
 The purpose of this collection to track racist abuse and harassment from Twitter user mpressman3 and from related Twitter accounts that have been created since the initial suspension of mpressman3.
@@ -13,7 +11,9 @@ The list below includes 5775 archived tweets by
 
 Please note that all tweets quoted here are sourced from the
 [Wayback Machine](https://web.archive.org) and were not directly accessed through the Twitter API or
-any Twitter client.
+any Twitter client.  
+
+### Link to part 2 here: https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part2.md  
 
 * [ 4 March 2020](https://web.archive.org/web/20200304133638/https://twitter.com/mpressman3/status/1235196282089725953): I made the black kids angry! LOL!
 * [ 4 March 2020](https://web.archive.org/web/20200304074608/https://twitter.com/mpressman3/status/1235107458030473216): How old are you, twelve? I mean, with the rabbit ears and filters, like children use, it's hard to tell.
