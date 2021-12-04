@@ -14,11 +14,11 @@ Profile image 2 - [Source](https://web.archive.org/web/20190725034203/https://tw
 Profile image 3 - [Source](https://web.archive.org/web/20190326015530/https://twitter.com/mpressman3/status/1110359563038007296)  
   
 ### Michael's threatening comments to government officials
-Nov 26 2019 - [Rep. Maxine Waters](https://web.archive.org/web/20191127080524/https://twitter.com/mpressman3/status/1199598237503705088)  
-Nov 21 2019 - [Senator Bernie Sanders](https://web.archive.org/web/20191121093351/https://twitter.com/mpressman3/status/1197441203597447168)  
-Oct 9 2019 - [Speaker of the House Nancy Pelosi](https://web.archive.org/web/20191009072628/https://twitter.com/mpressman3/status/1181830719267581957)  
-Oct 2 2019 - [Rep. Maxine Waters](https://web.archive.org/web/20191003020503/https://twitter.com/mpressman3/status/1179575278466715649)  
-Aug 12 2019 - [Rep Sheila Jackson Lee](https://web.archive.org/web/20190813064418/https://twitter.com/mpressman3/status/1161166529880363008)
+[26 November 2019 - Rep. Maxine Waters](https://web.archive.org/web/20191127080524/https://twitter.com/mpressman3/status/1199598237503705088)  
+[21 November 2019 - Senator Bernie Sanders](https://web.archive.org/web/20191121093351/https://twitter.com/mpressman3/status/1197441203597447168)  
+[9 October 2019 - Speaker of the House Nancy Pelosi](https://web.archive.org/web/20191009072628/https://twitter.com/mpressman3/status/1181830719267581957)  
+[2 October 2019 - Rep. Maxine Waters](https://web.archive.org/web/20191003020503/https://twitter.com/mpressman3/status/1179575278466715649)  
+[12 August 2019 - Rep Sheila Jackson Lee](https://web.archive.org/web/20190813064418/https://twitter.com/mpressman3/status/1161166529880363008)
 
 Information regarding [Threatening government officials of the United States](https://en.wikipedia.org/wiki/Threatening_government_officials_of_the_United_States)  
 
