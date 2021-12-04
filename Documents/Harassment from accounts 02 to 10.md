@@ -1,14 +1,13 @@
 Accounts 2-10 checked for @indigenoussista replies.
+## Stalking and harassment    
+Here is a record of tweets replying to KJ (@indiginoussista)[https://twitter.com/indigenoussista] from various sock accounts.
 
-=== Stalking and harassment ===   
-Here is a record of tweets replying to KJ (@indiginoussista) from various sock accounts.
-
-=== Username: @Tom84933624
+### Username: @Tom84933624
 
 18 March 2020: He's 100% right about the blacks. You're 100% N I G G E R So what you think means nothing.
 https://github.com/mparchive/mpressman3/blob/main/Accounts/02_Tom84933624.md
 
-=== Username: @Reggin42187513
+### Username: @Reggin42187513
 
 29 March 2020: So, someone blocks you and you have how many accounts to still keep harassing them? You got put in jail because you're a racist. You stalk and harass people, don't act like your some victim because someone did exactly what you do to many people. Block means go away.
 https://web.archive.org/web/20200329014026/https://twitter.com/Reggin42187513/status/1244063359198212097
@@ -19,7 +18,7 @@ https://web.archive.org/web/20200329020436/https://twitter.com/Reggin42187513/st
 29 March 2020: Go ahead and report, for "revenge." Like when you report someone, you think they're supposed to just leave you alone. When you're the most hateful racist on Twitter. Everyone you interact with, is checked out. If they like their account, they should avoid you.
 https://web.archive.org/web/20200329015339/https://twitter.com/Reggin42187513/status/1244064509418975232
 
-=== Username: @Tim53865686
+### Username: @Tim53865686
 
 7 April 2020: Your opinion means shit to The White People. You have issues.
 https://web.archive.org/web/20200407021445/https://twitter.com/Tim53865686/status/1247346811901272064
@@ -42,7 +41,7 @@ https://web.archive.org/web/20200407022325/https://twitter.com/Tim53865686/statu
 7 April 2020: Shut up Shaniqua.
 https://web.archive.org/web/20200407022502/https://twitter.com/Tim53865686/status/1247349132160794626
 
-=== Username: Tony02039868
+### Username: Tony02039868
 
 (Directed at KJ)  
 7 April 2020: This is a self victimization stalker. They think they're a victim, when in fact, it's them. They don't see their stalking and harassing as bad. "Dey just gittin da trolls," or some other lame excuse. The self victimization stalker is always the first to use the word, "stalker." https://twitter.com/Tony02039868/status/1247369383107874816/photo/1
@@ -65,7 +64,7 @@ https://web.archive.org/web/20200407102027/https://twitter.com/Tyrone45437333/st
 7 April 2020: @indigenoussista @Toby31005037 @Tony02039868 Go ahead and call!😄😄😄😄 There's nothing illegal. If there was, half of Twitter would be in jail, especially you. Go ahead. Then explain what you do while you're at it.
 https://web.archive.org/web/20200407102344/https://twitter.com/Tyrone45437333/status/1247470105413521409
 
-=== Username: @kinte_toby
+### Username: @kinte_toby
 
 13 April 2020: @indigenoussista @TwitterSupport @Black62603797 So you've been keeping tabs on that person. That's called stalking. You're a stalker. Twitter is a public message board. No law against it. So, niggy, stop harassing that person. We know you blacks think you're victims. You play the victim to justify your violence and criminality 
 https://web.archive.org/web/20200413011137/https://twitter.com/kinte_toby/status/1249505487910993921
