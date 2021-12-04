@@ -89,6 +89,7 @@ Stalking and harassment tweets from accounts 21-63 incomplete.
 |50 |21-01-23 |21-02-01 |[@BlacksViolent](https://github.com/mparchive/mpressman3/blob/main/Accounts/50_BlacksViolent.md) |1352848951741976576 |Violent blacks |
 |51 |21-02-06 |21-02-20 |[@Italktoanimals5](https://github.com/mparchive/mpressman3/blob/main/Accounts/51_Italktoanimals5.md) |1356840382626205697 |Floyd |
 |52 |21-02-16 |21-02-19 |[@stats_crime](https://github.com/mparchive/mpressman3/blob/main/Accounts/52_stats_crime.md) |1361545343670898693 |Crime Stats |
+| |21-02-24 |21-02-24 |[@ZiggerJ](https://github.com/mparchive/mpressman3/blob/main/Accounts/namechange_ZiggerJ.md) |Name changed |Zigger Jones | 
 |53 |21-03-01 |21-03-16 |[@jogger_stinky](https://github.com/mparchive/mpressman3/blob/main/Accounts/53_jogger_stinky.md) |1365530934372667394 |Stinky Jogger |
 |54 |21-03-18 |21-03-21 |[@bigger_johnson](https://github.com/mparchive/mpressman3/blob/main/Accounts/54_bigger_johnson.md) |1372463272453111810 |Bigger Johnson |
 |55 |21-04-14 |21-04-15 |[@indigenousnigga](https://github.com/mparchive/mpressman3/blob/main/Accounts/55_indigenousnigga.md) |1381473842787405824 |Indigenousnigga |
@@ -109,7 +110,6 @@ Stalking and harassment tweets from accounts 21-63 incomplete.
 |70 |21-11-25 |21-11-25 |[@BlacksSavage](https://github.com/mparchive/mpressman3/blob/main/Accounts/70_BlacksSavage.md) |1463722662434377730 |Savage blacks |
 |71 |20-03-17 |Active |[@GeorgeF1350](https://twitter.com/GeorgeF1350) |1239817886551683073 |George |
 |72 |21-02-19 |Abandoned |[@WillieD82567868](https://twitter.com/WillieD82567868) |1362649141147553792 |Willie D |
-| |21-02-24 |21-02-24 |[@ZiggerJ](https://github.com/mparchive/mpressman3/blob/main/Accounts/namechange_ZiggerJ.md) |Name changed |Zigger Jones |
 |73 |21-02-25 |Abandoned |[@indigenouszigge](https://twitter.com/indigenouszigge) |1364856895408902148 |KJ (AKA hoodrat) |
 |74 |21-04-07 |Abandoned |[@Tyrek04591212](https://twitter.com/Tyrek04591212) |1247629421756002310 |Tyrek |
 |75 |21-04-13 |Abandoned |[@Ziggy1350](https://twitter.com/Ziggy1350) |1381778216046714884 |I didn't resist arrest |
