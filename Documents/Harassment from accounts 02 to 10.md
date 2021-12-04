@@ -16,16 +16,14 @@ Checked
 Checked
 
 === 05 ===
-Username: @Reggin42187513
+Username: [@Reggin42187513](https://twitter.com/Reggin42187513)
 
-29 March 2020: So, someone blocks you and you have how many accounts to still keep harassing them? You got put in jail because you're a racist. You stalk and harass people, don't act like your some victim because someone did exactly what you do to many people. Block means go away.
-https://web.archive.org/web/20200329014026/https://twitter.com/Reggin42187513/status/1244063359198212097
+* [29 March 2020](https://web.archive.org/web/20200329014026/https://twitter.com/Reggin42187513/status/1244063359198212097): So, someone blocks you and you have how many accounts to still keep harassing them? You got put in jail because you're a racist. You stalk and harass people, don't act like your some victim because someone did exactly what you do to many people. Block means go away.
 
-29 March 2020: About 15 of your followers have eaten shit since, so. Fair's fair. Everyone you interact with is checked out. And if they do something wrong... Twitter time....
-https://web.archive.org/web/20200329020436/https://twitter.com/Reggin42187513/status/1244063621891723265
+* [29 March 2020](https://web.archive.org/web/20200329020436/https://twitter.com/Reggin42187513/status/1244063621891723265): About 15 of your followers have eaten shit since, so. Fair's fair. Everyone you interact with is checked out. And if they do something wrong... Twitter time....
 
-29 March 2020: Go ahead and report, for "revenge." Like when you report someone, you think they're supposed to just leave you alone. When you're the most hateful racist on Twitter. Everyone you interact with, is checked out. If they like their account, they should avoid you.
-https://web.archive.org/web/20200329015339/https://twitter.com/Reggin42187513/status/1244064509418975232
+* [29 March 2020](https://web.archive.org/web/20200329015339/https://twitter.com/Reggin42187513/status/1244064509418975232): Go ahead and report, for "revenge." Like when you report someone, you think they're supposed to just leave you alone. When you're the most hateful racist on Twitter. Everyone you interact with, is checked out. If they like their account, they should avoid you.
+
 
 === 06 ===
 Username: @Tim53865686
