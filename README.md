@@ -117,9 +117,9 @@ Stalking and harassment tweets from accounts 21-63 incomplete.
 | |21-09-27 |21-09-27 |@youngnggy |Name changed |Young Ng |
 | |21-10-12 |21-10-12 |@correcttheidiot |Name changed |Correct the idiot |
 |77 |21-11-25 |Active |[@NiggaIndigenous](https://twitter.com/NiggaIndigenous) |1463778436363730951 |Indigenous Nigga |
-|78 |21-11-25 |Active |[@FuckYou79750725](https://twitter.com/FuckYou79750725) |1463855807905341449 |Fuck You |
-|79 |21-11-26 |Active |[@stoplyingyoupos](https://twitter.com/stoplyingyoupos) |1463908575999320073 |stop the lying. |
-|80 |21-11-30 |Active |[@StopLyingpos2](https://twitter.com/StopLyingpos2) |1465780416074428425 |Stop Lying |
+|78 |21-11-25 |[Deactivated](https://twitter.com/FuckYou79750725) |[@FuckYou79750725](https://github.com/mparchive/mpressman3/blob/main/Accounts/78_FuckYou79750725.md) |1463855807905341449 |Fuck You  |
+|79 |21-11-26 |[Deactivated](https://twitter.com/stoplyingyoupos) |[@stoplyingyoupos](https://github.com/mparchive/mpressman3/blob/main/Accounts/79_stoplyingyoupos.md) |1463908575999320073 |stop the lying. |
+|80 |21-11-30 |[Deactivated](https://twitter.com/StopLyingpos2) |[@StopLyingpos2](https://github.com/mparchive/mpressman3/blob/main/Accounts/80_StopLyingpos2.md) |1465780416074428425 |Stop Lying |
 
 
 
