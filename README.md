@@ -109,12 +109,12 @@ Stalking and harassment tweets from accounts 21-63 incomplete.
 |70 |21-11-25 |21-11-25 |[@BlacksSavage](https://github.com/mparchive/mpressman3/blob/main/Accounts/70_BlacksSavage.md) |1463722662434377730 |Savage blacks |
 |71 |20-03-17 |Active |[@GeorgeF1350](https://twitter.com/GeorgeF1350) |1239817886551683073 |George |
 |72 |21-02-19 |Abandoned |[@WillieD82567868](https://twitter.com/WillieD82567868) |1362649141147553792 |Willie D |
-| |21-02-24 |n/a |[@ZiggerJ](https://github.com/mparchive/mpressman3/blob/main/Accounts/namechange_ZiggerJ.md) |Name changed |Zigger Jones |
+| |21-02-24 |21-02-24 |[@ZiggerJ](https://github.com/mparchive/mpressman3/blob/main/Accounts/namechange_ZiggerJ.md) |Name changed |Zigger Jones |
 |73 |21-02-25 |Abandoned |[@indigenouszigge](https://twitter.com/indigenouszigge) |1364856895408902148 |KJ (AKA hoodrat) |
 |74 |21-04-07 |Abandoned |[@Tyrek04591212](https://twitter.com/Tyrek04591212) |1247629421756002310 |Tyrek |
 |75 |21-04-13 |Abandoned |[@Ziggy1350](https://twitter.com/Ziggy1350) |1381778216046714884 |I didn't resist arrest |
 |76 |21-07-08 |Abandoned |[@indigenoussis](https://twitter.com/indigenoussis) |1412972469057724419 |KJ (AKA Hoodrat) |
-| |21-09-27 |21-09-27 |[@youngnggy](https://github.com/mparchive/mpressman3/blob/main/Accounts/namechange_youngnggy.md) |Name changed |Young Ng |
+| |21-09-21 |21-09-27 |[@youngnggy](https://github.com/mparchive/mpressman3/blob/main/Accounts/namechange_youngnggy.md) |Name changed |Young Ng |
 | |21-10-12 |21-10-12 |[@correcttheidiot](https://github.com/mparchive/mpressman3/blob/main/Accounts/namechange_correcttheidiot.md) |Name changed |Correct the idiot |
 |77 |21-11-25 |Active |[@NiggaIndigenous](https://twitter.com/NiggaIndigenous) |1463778436363730951 |Indigenous Nigga |
 |78 |21-11-25 |[Deactivated](https://twitter.com/FuckYou79750725) |[@FuckYou79750725](https://github.com/mparchive/mpressman3/blob/main/Accounts/78_FuckYou79750725.md) |1463855807905341449 |Fuck You  |
