@@ -35,7 +35,7 @@ Stalking and harassment tweets from accounts 21-63 incomplete.
 
 ### Suspended and active Twitter accounts 
 
-| # | Start | Approx end | Handle | User ID | Name | 
+| # | Approx start | Approx end | Handle | User ID | Name | 
 |  --- |  -------------- |  -------------- | -------------------- |  -------------- |  -------------- | 
 |1 |17-05-11 |20-03-04 |[@mpressman3](https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part2.md) |730386605844930560 |MIC / Michael |
 |2 |20-03-17 |20-03-17 |[@Terrell34905565](https://github.com/mparchive/mpressman3/blob/main/Accounts/03_Terrell34905565.md) |1239833258021531648 |Terrell Edwards |
