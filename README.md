@@ -25,13 +25,15 @@ _Information regarding [Threatening government officials of the United States](h
 ### Stalking and harassment of an individual
 
 * [Stalking and harassment tweets from accounts 2-20](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2002%20to%2020.md)
-* [Stalking and harassment tweets from accounts 64-70](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2064%20to%2070.md)
-
-
-* [Indecent tweets - GRAPHIC CONTENT WARNING.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
-  
-  
+* [Stalking and harassment tweets from accounts 64-70](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2064%20to%2070.md)  
 Stalking and harassment tweets from accounts 21-63 incomplete.  
+
+
+### Posting explicit content at individuals  
+* [Explicit tweets - CONTENT WARNING - GRAPHIC CONTENT IN ARCHIVES.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
+  
+  
+
 
 ### Suspended and active Twitter accounts 
 
