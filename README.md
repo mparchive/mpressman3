@@ -22,7 +22,7 @@ The purpose of this repository is to document the posting history of an abusive 
 * [12 August 2019 - to Rep Sheila Jackson Lee](https://web.archive.org/web/20190813064418/https://twitter.com/mpressman3/status/1161166529880363008)
 
 
-### Posting extremely graphic content to individuals  
+### Posting graphic content to individuals  
 * [CONTENT WARNING - EXTREMELY GRAPHIC CONTENT IN ARCHIVES.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
   
   
