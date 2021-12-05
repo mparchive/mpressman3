@@ -6,7 +6,7 @@ The purpose of this repository is to document the posting history of an abusive 
 ### Primary Twitter account: [@mpressman3](https://twitter.com/mpressman3), suspended 2020.
 
 * [mpressman3 archive part 1](https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part1.md) - on most recent tweets posted under a fake black character
-* [mpressman3 archive part 2](https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part2.md) - on oldest tweets uses real identity
+* [mpressman3 archive part 2](https://github.com/mparchive/mpressman3/blob/main/Accounts/01_mpressman3_part2.md) - on oldest tweets used real identity
 
 ### Michael previously posting under his own identity
 * [Profile image 1](https://web.archive.org/web/20190921174231/https://twitter.com/mpressman3/status/1170053614372610048)  
