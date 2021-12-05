@@ -1,4 +1,5 @@
-Accounts 2-20 checked for @indigenoussista replies.
+Accounts 2-20 checked for  replies to KJ (@indigenoussista).  
+
 ## Stalking and harassment    
 Here is a record of tweets replying to KJ [@indiginoussista](https://twitter.com/indigenoussista) from various sock accounts.
 
@@ -413,5 +414,5 @@ https://web.archive.org/web/20200627054858/https://twitter.com/schmucatelli/stat
 
 ===
 
-Accounts 2-20 checked for @indigenoussista replies.
+Accounts 2-20 checked for  replies to KJ (@indigenoussista).
 
