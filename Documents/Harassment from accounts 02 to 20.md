@@ -1,7 +1,6 @@
-Accounts 2-20 checked for  replies to KJ (@indigenoussista).  
-
 ## Stalking and harassment    
-Here is a record of tweets replying to KJ [@indiginoussista](https://twitter.com/indigenoussista) from various sock accounts.
+Here is a record of tweets replying to KJ [@indiginoussista](https://twitter.com/indigenoussista) from various sock accounts.   
+(Accounts 2 through 20)
 
 ### Username: @Tom84933624
 
