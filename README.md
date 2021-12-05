@@ -20,7 +20,6 @@ The purpose of this repository is to document the posting history of an abusive 
 * [2 October 2019 - to Rep. Maxine Waters](https://web.archive.org/web/20191003020503/https://twitter.com/mpressman3/status/1179575278466715649)  
 * [12 August 2019 - to Rep Sheila Jackson Lee](https://web.archive.org/web/20190813064418/https://twitter.com/mpressman3/status/1161166529880363008)
 
-_Information regarding [Threatening government officials of the United States](https://en.wikipedia.org/wiki/Threatening_government_officials_of_the_United_States)_  
 
 ### Posting extremely graphic content to individuals  
 * [CONTENT WARNING - EXTREMELY GRAPHIC CONTENT IN ARCHIVES.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
