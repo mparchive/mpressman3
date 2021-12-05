@@ -1,5 +1,5 @@
 ## Twitter archives: mpressman3 and related accounts.
-### CONTENT WARNING: extreme racism and disturbing content.
+### CONTENT WARNING: extreme racism and disturbing language.
 The purpose of this repository is to document the posting history of an abusive Twitter user.
 
 ### See the [FULL SET OF ARCHIVES HERE](https://github.com/mparchive/mpressman3/tree/main/Accounts) for all related accounts.  
@@ -22,7 +22,7 @@ The purpose of this repository is to document the posting history of an abusive 
 * [12 August 2019 - to Rep Sheila Jackson Lee](https://web.archive.org/web/20190813064418/https://twitter.com/mpressman3/status/1161166529880363008)
 
 
-### Posting graphic content to individuals  
+### Posting graphic images and video to individuals  
 * [CONTENT WARNING - EXTREMELY GRAPHIC CONTENT IN ARCHIVES.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
   
   
