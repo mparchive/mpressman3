@@ -22,6 +22,10 @@ The purpose of this repository is to document the posting history of an abusive 
 
 _Information regarding [Threatening government officials of the United States](https://en.wikipedia.org/wiki/Threatening_government_officials_of_the_United_States)_  
 
+### Posting extremely graphic content to individuals  
+* [CONTENT WARNING - EXTREMELY GRAPHIC CONTENT IN ARCHIVES.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
+  
+  
 ### Stalking and harassment of an individual
 
 * [Stalking and harassment tweets from accounts 2-20](https://github.com/mparchive/mpressman3/blob/main/Documents/Harassment%20from%20accounts%2002%20to%2020.md)
@@ -30,14 +34,7 @@ _Information regarding [Threatening government officials of the United States](h
 
 Compilation of stalking and harassment tweets from accounts 21-63 and 70-80 incomplete, but it can be located within account archives.  
 The user frequently frequently calls his target "stalker" "niggy" "ziggy" "dinger", by their name, or replies with racial slurs directly to the target's handle.
-
-
-### Posting extremely graphic content to individuals  
-* [CONTENT WARNING - EXTREMELY GRAPHIC CONTENT IN ARCHIVES.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
   
-  
-
-
 ### Suspended and active Twitter accounts 
 
 | # | Approx start | Approx end | Handle | User ID | Name | 
