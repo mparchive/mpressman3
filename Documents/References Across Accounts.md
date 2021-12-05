@@ -1,6 +1,6 @@
-## Referencing the same content and locations across accounts
+## Referencing the same content sources and locations across accounts
 
-## Akron, Ohio references.
+## Akron, Ohio
 ### Username: @mpressman3
 * [ 5 January 2020](https://web.archive.org/web/20200110092144/https://twitter.com/mpressman3/status/1213672637655851008): Those people steal too much for large grocery stores to make it in urban areas. Every large grocer in **Akron** Ohio's urban areas has shut down due to theft. Dollar stores make .45 cents on the dollar, grocery stores about .23. They need to stop stealing.
 * [24 January 2020](https://web.archive.org/web/20200124095732/https://twitter.com/mpressman3/status/1220645976828010496): Oh, what's this? Stop trying to be a blk Colin Flaherty. You can't keep up. You people commit more crime.  #commitlesscrime  https://fox8.com/2020/01/17/akron-man-to-be-sentenced-for-hit-skip-that-killed-couple/
