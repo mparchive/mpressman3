@@ -23,7 +23,7 @@ The purpose of this repository is to document the posting history of an abusive 
 
 
 ### Posting graphic images and video to individuals  
-(See Documents folder for list of linked archives.)
+(See [Documents folder](https://github.com/mparchive/mpressman3/tree/main/Documents) for list of linked archives to Indecent Content.)
   
   
 ### Stalking and harassment of an individual
