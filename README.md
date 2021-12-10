@@ -122,7 +122,7 @@ The user frequently frequently calls his target "stalker" "niggy" "ziggy" "dinge
 |78 |21-11-25 |[Deactivated](https://twitter.com/FuckYou79750725) |[@FuckYou79750725](https://github.com/mparchive/mpressman3/blob/main/Accounts/78_FuckYou79750725.md) |1463855807905341449 |Fuck You  |
 |79 |21-11-26 |[Deactivated](https://twitter.com/stoplyingyoupos) |[@stoplyingyoupos](https://github.com/mparchive/mpressman3/blob/main/Accounts/79_stoplyingyoupos.md) |1463908575999320073 |stop the lying. |
 |80 |21-11-30 |[Deactivated](https://twitter.com/StopLyingpos2) |[@StopLyingpos2](https://github.com/mparchive/mpressman3/blob/main/Accounts/80_StopLyingpos2.md) |1465780416074428425 |Stop Lying |
-|81 |21-12-07 |Suspended | YoureWrong1489 |1458265681405808643 |King of the Hill |
+|81 |21-12-07 |Suspended | @YoureWrong1489 |1458265681405808643 |King of the Hill |
 
 
 
