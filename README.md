@@ -23,7 +23,7 @@ The purpose of this repository is to document the posting history of an abusive 
 
 
 ### Posting graphic images and video to individuals  
-* [CONTENT WARNING - EXTREMELY GRAPHIC CONTENT IN ARCHIVES.](https://github.com/mparchive/mpressman3/blob/main/Documents/Indecent%20Content.txt) 
+(See Documents folder for list of linked archives.)
   
   
 ### Stalking and harassment of an individual
